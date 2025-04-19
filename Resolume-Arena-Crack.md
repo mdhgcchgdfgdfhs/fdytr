@@ -17,6 +17,8 @@ Resolume Arena software free
 Resolume Arena tutorial
 
 Resolume Arena latest version
+ 🌍😍👉 https://tinyurl.com/3wvzvwh8?ytj9
+
 
 Resolume Arena requirements
 
